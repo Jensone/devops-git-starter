@@ -6,7 +6,7 @@ Yann :
 
 Luderce :
 
-Pierre-Gilles : 
+Pierre-Gilles : blablabla
 
 Jensone : 
 
