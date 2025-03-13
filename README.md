@@ -4,7 +4,7 @@ Rafal : Hello guys             ((((()-----P-O-W-E-R-----((((()
 
 Yann :
 
-Luderce :
+Luderce : H3llo !!!
 
 Pierre-Gilles : 
 
