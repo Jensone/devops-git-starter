@@ -2,7 +2,7 @@
 
 Rafal : Hello guys             ((((()-----P-O-W-E-R-----((((() Yann
 
-Yann : pourquoi le ciel est 
+Yann : pourquoi le ciel est bleu
 
 Luderce :
 
