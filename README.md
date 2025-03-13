@@ -6,7 +6,7 @@ Yann : pourquoi le ciel est red
 
 Luderce :
 
-Pierre-Gilles : 
+Pierre-Gilles : blablabla
 
 Jensone : 
 
