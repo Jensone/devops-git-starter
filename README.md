@@ -1,8 +1,8 @@
 # devops-git-strater
 
-Rafal : 
+Rafal : Hello guys             ((((()-----P-O-W-E-R-----((((() Yann
 
-Yann :
+Yann : pourquoi le ciel est 
 
 Luderce :
 
