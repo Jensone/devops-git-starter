@@ -1,6 +1,6 @@
 # devops-git-strater
 
-Rafal : 
+Rafal : Hello guys             ((((()-----P-O-W-E-R-----((((()
 
 Yann : pourquoi le ciel est bleu?
 
